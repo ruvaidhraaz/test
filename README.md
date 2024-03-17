@@ -3,3 +3,4 @@
 
 
 homophobic ruvaidh (no kola (money) with no 💧 )
+andiless ruvaidh kundan with no ability to do anything
